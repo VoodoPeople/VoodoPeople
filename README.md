@@ -25,6 +25,8 @@ I've done a lot of projects in domains such as health care, e-commerce...
 - Swift 
 - Objcetive-C
 - Ruby (Usually for fastlane scripts and CocoaPods)
+- Python (New Passion)
+- Go
 
 ---
 - 🌱 I’m currently learning Test Driven Development
