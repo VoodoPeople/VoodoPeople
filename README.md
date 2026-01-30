@@ -46,7 +46,7 @@ I preffer to work in range 09:30 - 18:00 CET
 🇵🇱 **Polish Language** - I like this language very much. I'm good at listening and understanding and capable to watch polish Netflix with very few subtitles support.
 I still mastering my speaking/writing skills.
 
-🇫🇷 This language is next on my list. Current level is "Bonjour, comment ça va ?" which means "Hello, how are you?". Restez branché ✌️
+🇭🇺 Magyar nyelv tanulok.
 
 ### 🤔 What activities do I enjoy? 
 - Running 🏃‍♂️
